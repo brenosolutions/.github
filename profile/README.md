@@ -4,6 +4,6 @@ Antigamente conhecido como **BrenoSolutions**, agora estou reunindo minha presen
 
 🚀 Meu novo perfil no GitHub é:
 
-# 🌐 [@brenocst](https://github.com/brenocst)
+# 🌐 [@brenozdev](https://github.com/brenozdev)
 
 Seja bem-vindo! ⭐
